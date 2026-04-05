@@ -1,4 +1,4 @@
-Procesos de innovación en ingeniería
+Procesos de Innovación en Ingeniería
 
 Integrantes:
 -Sullca Quispe , Katherine
